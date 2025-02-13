@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/4290c0f8-a310-4d0f-a5f4-e9ea1121f36a)
 
 
 hai!!!!! i am fern, elliot, or if youre feeling silly, jard, i use he/it exclusively, nothing else, please use masc terms
