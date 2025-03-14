@@ -11,6 +11,6 @@ i like. Roblox. a lot. you'll find me at only the roblox area basically, main in
 
 i dont mind c+h if its from oomfs but its kinda different if not, itll be very awkward and i will most likely be comfused
 
-i dont have a specific dni besides for these two things: if you associate with alekay (he makes me uncomfortable for a multitude of reasons, people are also generally uncomfortable with him) *unless* i already know you/have started to know you, or if you ship jard x bobo (bobo is based off a real person, the evade devs say it is not okay to ship either), aside from that i block/hide freely
+i dont have a specific dni besides for these two things: if you associate with alekay, aka @/xxjardxgalf-yaoi69xx on here *unless* i already know you/have started to know you (i am uncomfortable with him, others are generally uncomfortable with him), or if you ship jard x bobo (bobo is based off a real person, the evade devs say it is not okay to ship either), aside from that i block/hide freely
 
 thats basically it! like i said, read [/billybloxxer on rentry](https://rentry.co/billybloxxer) for more info, and if you want, you could read my [main rentry](https://rentry.co/evade) (beware of the bright colors)
