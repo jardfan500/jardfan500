@@ -13,4 +13,6 @@ i dont mind c+h if its from oomfs but its kinda different if not, itll be very a
 
 i dont have a specific dni besides for these two things: if you associate with alekay (aka @/xxjardxgalf-yaoi69xx on here) *unless* i already know you/have started to know you (i am uncomfortable with him, others are generally uncomfortable with him), or if you ship jard x bobo (bobo is based off a real person, the evade devs say it is not okay to ship either), aside from that i block/hide freely
 
+umm lastly I GO OFFLINE FOR QUITE A BIT SOMETIMES! its either im taking a break, too socially anxious to play, or both..... feel free to ask for my discord if youre an oomf ill likely give it (unless we've only interacted once or twice)
+
 thats basically it! like i said, read [/billybloxxer on rentry](https://rentry.co/billybloxxer) for more info, and if you want, you could read my [main rentry](https://rentry.co/evade) (beware of the bright colors)
