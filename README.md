@@ -11,7 +11,7 @@ hello! i am elliot (or fern, but i prefer elliot more than anything), and this i
 im an arospecace gay trans guy, among a lot of other things :P i use he/him and it/its pronouns <b>only</b> + masc terms, do <b>not</b> use anything else to refer to me as i wont like it :/ autistic with amnesia ocd and social anxiety disorder, the rest are no ones business and i prefer to keep to myself about them unless its actually relevant, please be mindful of the things i have
 <br>
 <br>
-im interested in ROBLOX (POINT OF NO RETURN., piggy, work at a pizza place, noobsquad, nullscape, flood escape, get a snack series, hangout game series + others), deltarune/undertale, DDLC, anything to do with the 3ds/wii/wii u, tomodachi life, science (weather + med science mainly), and some others i might be forgetting S( =^.^=) ROBLOX is the biggest interest out of all of these, ive been on the site since february 2018 and have been an active player for most of this time
+im interested in ROBLOX (POINT OF NO RETURN., work at a pizza place, noobsquad, nullscape, flood escape, get a snack series, hangout game series + others), deltarune/undertale, DDLC, anything to do with the 3ds/wii/wii u, tomodachi life, science (weather + med science mainly), and some others i might be forgetting S( =^.^=) ROBLOX is the biggest interest out of all of these, ive been on the site since february 2018 and have been an active player for most of this time
 <br>
 <br>
 i dont have a do not interact list as i think blocking people works more than anything, but just know pro/darkship is not something i accept and anyone under 13 im uncomfortable around and avoid... other than the more obvious stuff like bigots, im cool with just about anyone
